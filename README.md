@@ -1,1 +1,0 @@
-# Sistema-Verasi-PC
